@@ -4,7 +4,7 @@
 
 </h5>
 
-$${\color{#949a5f}"\space Oh \space , \space Father \space tell \space me \space , do \space we \space get \space what \space we \space deserve \space ? \space "}$$
+$${\color{#949a5f}"\space Oh, \space 'cause \space they \space will \space run \space you \space down \space , \space down \space ' \space til \space the \space dark \space "}$$
 
 <img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
 
