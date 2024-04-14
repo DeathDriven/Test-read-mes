@@ -6,7 +6,9 @@
 
 $${\color{#949a5f}"\space Oh, \space 'cause \space they \space will \space run \space you \space down \space , \space down \space ' \space til \space the \space dark \space "}$$
 
-<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
+<h5 align="center">
+<img src="https://64.media.tumblr.com/8ddbf550f59270be082c5ac4911c2598/038b5d1fbc72f290-c9/s400x600/948e6b4c7aed1ebe79ef7d87a7465c023a63cb8b.gifv"/>
+</h5>
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/458bc1d0c16a7bcabe2290d1cd21e21a/57979cd21bfdeb89-8f/s1280x1920/756ddcc9734ca5cc08df114014951e18f16d62df.pnj"/>
@@ -34,7 +36,9 @@ I have a typing quirk, Whisper to interact please, I spam follow for FUN alone, 
 <img src="https://64.media.tumblr.com/c096d3d0aaaf957d012c2c4bf113f428/57979cd21bfdeb89-97/s1280x1920/77462383bc01f2796f473460af2537d2a98a456b.pnj"/>
 </h5>
 
-<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
+<h5 align="center">
+<img src="https://64.media.tumblr.com/8ddbf550f59270be082c5ac4911c2598/038b5d1fbc72f290-c9/s400x600/948e6b4c7aed1ebe79ef7d87a7465c023a63cb8b.gifv"/>
+</h5>
 
 <p align ="center">
 <img src="https://64.media.tumblr.com/57fa8f970b7391d27f946d020b81897d/bbdd527784ad917b-9d/s500x750/8668dbf4709c040388aef49fe1e5a0986c2ca76f.pnj.gif"/>
